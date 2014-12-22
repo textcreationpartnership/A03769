@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-OF THE EXPRESSE VVORDE OF GOD.A SHORTE, BVT A MOST EXCELLENT TREATYSE AND very neceſſary for this ty
+
 1. PRIVILEGIVM.
 
 1. THE TRANSLATOVR TO THE READER.
